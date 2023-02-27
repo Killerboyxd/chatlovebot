@@ -3,7 +3,7 @@ Best Smart Artificial intelligence Chat bot For Telegram Groups
 Click Below Picture To Open MISA ChatBot Owner Id...
 
 
-<p align="center"><a href="https://t.me/The_Sangram"><img src="https://te.legra.ph/file/0bcf3751164b103d32545.jpg"></a></p>
+<p align="center"><a href="https://t.me/RONNY_KI_DUNIYA"><img src="https://telegra.ph/file/c4c74ca853dbe426b5075.jpg"></a></p>
 
 
 
@@ -26,13 +26,12 @@ Click Below Picture To Open MISA ChatBot Owner Id...
 
 
 
-## ⚒️ 𝐂𝐫𝐞𝐝𝐢𝐭
-[𝐒𝐚𝐧𝐠𝐫𝐚𝐦](https://t.me/The_Sangram)
+## ⚒️ 𝐂𝐫𝐞𝐝𝐢𝐭](https://t.me/RONNY_KI_DUNIYA)
 
 ## Telegram 🏪
 
-[![𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐆𝐫𝐨𝐮𝐩](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/WorldChattingFriendsWCF) 
-[![𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐂𝐡𝐚𝐧𝐧𝐞𝐥](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/WCFnetwork)
+[![𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐆𝐫𝐨𝐮𝐩](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/RONNY_KI_DUNIYA) 
+[![𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐂𝐡𝐚𝐧𝐧𝐞𝐥](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/do_dil_ek_jaan143)
 
 
 
@@ -44,7 +43,7 @@ Click Below Picture To Open MISA ChatBot Owner Id...
 #### 🥺 Copy Pasters You Can Copy This Repo But Must Give Credits ...
 
 ### 🌷 Owner Of This Repository 🇮🇳
-[![𝐒𝐚𝐧𝐠𝐫𝐚𝐦](https://t.me/The_Sangram)
+[![𝐒𝐇𝐈𝐕](https://t.me/ll_SABKA_BHAI_KILLER_ll)
 
 
 
